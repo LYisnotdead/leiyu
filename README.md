@@ -1,2 +1,2 @@
 # Lei Yu
-I am a graduate student from the University of Kansas.
+I am a graduate student from Department of Mathematics, the University of Kansas.
